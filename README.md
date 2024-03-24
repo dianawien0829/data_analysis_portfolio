@@ -7,5 +7,8 @@
 ### Portfolio Projects
 
 ### Certificates
+Google Data Analytics Professional Certificate
 
 ### Contacts
+- LinkedIn:
+- Email: 
