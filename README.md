@@ -10,5 +10,5 @@
 Google Data Analytics Professional Certificate
 
 ### Contacts
-- LinkedIn:
+- LinkedIn: [@Weina Diana Liu](https://www.linkedin.com/in/weina-diana-liu-8b64951b3/)
 - Email: 
